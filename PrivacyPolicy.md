@@ -1,6 +1,6 @@
 # Privacy Policy for DPTennis
 
-**Last updated:** December 2024
+**Last updated:** July 2025
 
 ## Introduction
 
